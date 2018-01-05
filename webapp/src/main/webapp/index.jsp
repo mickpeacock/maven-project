@@ -1,1 +1,1 @@
-Hello, Mick & Chris!
+Hello, Mick and Chris!
